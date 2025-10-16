@@ -1,3 +1,1 @@
-![91afc3cee56b297983105f5770a3e941](https://github.com/user-attachments/assets/85b5a5bd-8d24-4df0-bf64-46c387d29030)
-
-<p align="center">𝓶𝓮 𝓪𝓯𝓽𝓮𝓻 𝓲 𝓰𝓮𝓽 𝓪 𝓫𝓾𝓷𝓬𝓱 𝓸𝓯 𝓵𝓲𝓰𝓱𝓽 𝓬𝓸𝓷𝓮𝓼 𝓲𝓷𝓼𝓽𝓮𝓪𝓭 𝓸𝓯 𝓪 5 𝓼𝓽𝓪𝓻 𝓲𝓷 𝓪 𝓼𝓲𝓷𝓰𝓵𝓮 𝓹𝓾𝓵𝓵 𝓸𝓷 𝓪 𝓵𝓲𝓶𝓲𝓽𝓮𝓭 𝓫𝓪𝓷𝓷𝓮𝓻 /j
+hello guys, you can call me Pichu, or you can also call me by my actual nickname—Cath.
