@@ -6,6 +6,6 @@ hello!! → 18+ , she/her!!
 · · i do not chat much. i like editing/making/displaying/restyling my pt skins! DNC strictly!
 
 
-50% chance i am reading your github/strawpage/rentry, and signing your atabook!
+50% possibility i am reading your github/strawpage/rentry, and signing your atabook!
 
 · · waves at you...
