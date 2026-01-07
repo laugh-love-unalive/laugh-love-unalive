@@ -1,5 +1,6 @@
 
-<img width="1183" height="1147" alt="Untitled15_20260105194104" src="https://github.com/user-attachments/assets/d17d1010-7a37-4414-8e5c-30ca48b733e2" />
+<img width="1583" height="1401" alt="Untitled19_20260108001013" src="https://github.com/user-attachments/assets/25bd9f91-b274-43c5-a3ec-d002dcd804eb" />
+
 hello!! → 18+ , she/her!!
 
 · · i do not chat much. i like editing/making/displaying/restyling my pt skins! DNC strictly!
