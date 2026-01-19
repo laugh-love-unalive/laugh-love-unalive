@@ -1,11 +1,3 @@
+<img width="736" height="736" alt="Untitled29_20260119085344" src="https://github.com/user-attachments/assets/877d4081-6073-4e77-8aaf-a854ff855b71" />
 
-<img width="1583" height="1401" alt="Untitled19_20260108001013" src="https://github.com/user-attachments/assets/25bd9f91-b274-43c5-a3ec-d002dcd804eb" />
-
-hello!! → 18+ , she/her!!
-
-· · i do not chat much. i like editing/making/displaying/restyling my pt skins! DNC strictly!
-
-
-50% possibility i am reading your github/strawpage/rentry, and signing your atabook!
-
-· · waves at you...
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4500&pause=2500&color=D8B1F6FB&vCenter=true&width=435&lines=18%2B...+uh...+she%2Fher...+uh...;likes+editing+skins...+uh...;do+not+copy+my+skins...+uh...;w2i...+c%2Bh...+i+don't+chat+much...)](https://git.io/typing-svg)
