@@ -1,3 +1,4 @@
-<img width="736" height="736" alt="Untitled29_20260119085344" src="https://github.com/user-attachments/assets/877d4081-6073-4e77-8aaf-a854ff855b71" />
+<img width="490" height="250" alt="Untitled32_20260121104804" src="https://github.com/user-attachments/assets/30b95fe9-8dfe-4c68-9d01-0dc61485234c" />
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4500&pause=2500&color=D8B1F6FB&vCenter=true&width=435&lines=18%2B...+uh...+she%2Fher...+uh...;likes+editing+skins...+uh...;do+not+copy+my+skins...+uh...;w2i...+c%2Bh...+i+don't+chat+much...)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=13&duration=3380&pause=810&color=F99BC5&width=580&height=60&lines=I%2C+Hyacinthia+will+fulfill+the+flame+chase+duty+with+all+of+you!;i'm+pichu+btw%2C+i'm+18%2B+and+i'm+a+she%2Fher;i+make+girlypop+ponies!+strictly+do+not+copy+them!;whisper+to+int%2C+or+cuddle+%2B+hug!+i+dont+chat+much+tho..;sign+atabook+whenever+you'd+like!+a+possibility+i+might+sign+back!;nice+to+meet+you!+have+a+nice+day!)](https://git.io/typing-svg)
